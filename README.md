@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 - 💬 Ask me about **music**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/ayanou/</h3>
 <p align="left">
 </p>
 
